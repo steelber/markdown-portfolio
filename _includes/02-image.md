@@ -1,0 +1,1 @@
+![Tierney standing with two other co-presenters in front of a screen after a conference presentation](https://www.guilford.edu/sites/default/files/styles/full_image_large_scale/public/images_library/2020-03/guilford-college_pedogogy-conference.jpg?itok=EKicLjUa)
