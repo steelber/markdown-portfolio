@@ -1,0 +1,2 @@
+I am first and foremost a __*teacher*__: I use __critical digital pedagogy__ and __active learning__ approaches in the classroom to teach students, faculty, and staff how to *thoughtfully* and *critically* engage with technology in their learning, teaching, and projects.\
+I am also a **_technologist_**: I love learning new tools and approaches so I can share them with others, and learn from/contribute to this growing field of digital pedagogy.
